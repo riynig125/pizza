@@ -1,0 +1,6 @@
+- Preheat oven to 350 degree
+- While preheat, knead dough and make in to thin circle
+- add sauce
+-add cheese
+- add topping whatever you like :)
+- put in oven after preheat for 20-30 min
